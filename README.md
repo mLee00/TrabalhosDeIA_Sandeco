@@ -1,0 +1,1 @@
+# TrabalhosDeIA_Sandeco
